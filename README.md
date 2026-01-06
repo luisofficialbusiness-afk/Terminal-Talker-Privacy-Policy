@@ -70,4 +70,4 @@ We may update this Privacy Policy from time to time. Changes will be posted on t
 
 12. Contact Information
 If you have questions, concerns, or privacy-related requests, contact us at:
-Email: b3f0r3t1m3@gmail.com
+Email: b3f0r3t1m3@gmail.com or Discord: rveprty.
