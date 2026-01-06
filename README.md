@@ -67,6 +67,7 @@ Requests may be submitted via email at:
 📧 b3f0r3t1m3@gmail.com
 10. Changes to This Privacy Policy
 We may update this Privacy Policy from time to time. Changes will be posted on this page with a new effective date. Continued use of the Service constitutes acceptance of the updated policy.
-11. Contact Information
+
+12. Contact Information
 If you have questions, concerns, or privacy-related requests, contact us at:
 Email: b3f0r3t1m3@gmail.com
